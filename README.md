@@ -1,1 +1,1 @@
-TinDog Starting Files
+Friends of Meditation Starting Files
